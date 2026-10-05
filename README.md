@@ -1,4 +1,4 @@
-# template-repo
+# İstiklal Marşı ve Mehmet Akif Ersoy
 
 sa. 35: <br>
 ... çok basit bir tarama ile şunları bulabiliyoruz; <br>
