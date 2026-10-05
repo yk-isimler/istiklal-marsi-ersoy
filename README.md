@@ -32,7 +32,7 @@ Not ediyorum şimdilik. "ersoy"un İbrani bir isim olduğunu söylemiyor. Tersin
 <span style="color: purple !important; ">
 Yalçın Küçük,  [bu konusmasinda  ~1:03:44'de](https://www.youtube.com/watch?v=2ETvoQve4nI?t=3824),</span> İstiklal Marşı'nı M. A. Ersoy'un değil, Münir Ertegün ile Yusuf Hikmet (Kemal değil) Bayur'un yazdığını <span style="color: purple !important; ">söylüyor. Ayrıca</span> İstiklal Marşı'nın, Tevrat'ta İşaya Peygamber'in kitabından alınma <span style="color: purple !important; "> olduğunu söylüyor. </span>
 
- [bu konusmasinda  ~1:03:44'de](https://www.youtube.com/watch?v=2ETvoQve4nI)
+ [bu konusmasinda  ~1:03:44'de](https://www.youtube.com/watch?v=2ETvoQve4nI&t=3826)
 
 <span style="color: purple !important; ">
  YK, bu iddiaya kaynak vermiyor. Baska yerde Münir Ertegün ile Yusuf Hikmet (Kemal değil) Bayur'un  Butun bunlara dair en olasi sey su olabilir mi -- M.A.Ersoy yazdi. Ama M. Ertegun ve Y. H. Bayur'un gudumunde  ...
